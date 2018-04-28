@@ -1,3 +1,5 @@
+<link rel="stylesheet" type="text/css" href="main.css"/>
+
 # Camas High School Band
 
 ### About Camas Band:
