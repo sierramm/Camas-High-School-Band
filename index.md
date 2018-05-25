@@ -7,7 +7,7 @@
 <div class="about">
   <h3>About Camas Band:</h3>
   <p>If you play an instrument (or are willing to learn one) and enjoy making music, you should join band! Band is a great opportunity to learn and progress as a musician, as well as build relationships with people who share similar passions. Band is made up of various wind, brass, and percussion instruments. Band is taken as an elective class during the school day during either 4th or 5th period. Jazz Band (0 period), Wind Ensemble (A lunch), and Pit Orchestra (after/before school) are also available by audition, and take place outside the regular school day.</p>
-
+</div>
 
 #### What performances does the band play at?
 - **Concerts:** The band plays at a Holiday concert, Winter concert, Spring concert, and Year-end concert.
