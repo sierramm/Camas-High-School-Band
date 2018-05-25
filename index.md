@@ -9,7 +9,7 @@ If you play an instrument (or are willing to learn one) and enjoy making music, 
 
 
 
-##### What performances does the band play at?
+#### What performances does the band play at?
 - **Concerts:** The band plays at a Holiday concert, Winter concert, Spring concert, and Year-end concert.
 - **Football games:** The band performs half-times shows on the field as well as pre- and post-game shows in the stands.
 - **Basketball and volleyball games:** During their respective seasons, the band plays pep music at home volleyball and basketball games.
