@@ -5,7 +5,8 @@
 <img src="http://staff.camas.wednet.edu/blogs/chsband/files/2013/11/cropped-camasfball1-5909.jpg">
 
 ### About Camas Band:
-Band is made up of various wind, brass, and percussion instruments. The band performs at football, basketball, and volleyball games during their respective seasons, and marches in several parades throughout the school year. The band also rehearses and performs different pieces at concerts during the year. Band is taken as an elective class during the school day during either 4th or 5th period. Jazz Band (0 period), Wind Ensemble (A lunch), and Pit Orchestra (after/before school) are also available by audition, and take place outside the regular school day. To forecast for band, you need to get the signature of Mr. Mancini (the band director). 
+If you play n instrument (or are willing to learn one) and enjoy making music, you should join band! Band is made up of various wind, brass, and percussion instruments. The band performs at football, basketball, and volleyball games during their respective seasons, and marches in several parades throughout the school year. The band also rehearses and performs different pieces at concerts during the year. Band is taken as an elective class during the school day during either 4th or 5th period. Jazz Band (0 period), Wind Ensemble (A lunch), and Pit Orchestra (after/before school) are also available by audition, and take place outside the regular school day. To forecast for band, you need to get the signature of Mr. Mancini (the band director). 
+
 
 #### What performances does the band play at?
 - **Concerts:** The band plays at a Holiday concert, Winter concert, Spring concert, and Year-end concert.
@@ -14,6 +15,11 @@ Band is made up of various wind, brass, and percussion instruments. The band per
 - **Parades:** The band marches in several parades during the holiday season and in the spring. 
 - **Disneyland/Disneyworld:** Every other year, the band goes on tour to either Disneyland or Disneyworld during spring break.
 
-#### How can I join band?
-To join band, you need to need to forecast for it in your schedule. You also need to get Mr. Mancini's signature. 
+#### What kind of time commitment does band require?
+During marching season, in addition to attendance at football/other sports games and parades, there are field show practices after school, band camp held for a week during the summer, and sectionals after school run by the section leaders for each instrument. Throughout the entire school year, although practice calendars or logs are not assigned, individual practice is often needed in order to learn and perform the songs well. 
 
+#### Is band better than choir?
+Yes, without a doubt. Band is far superior. (We even sing sometimes)
+
+#### How can I join band?
+To join band, you need to need to forecast for it in your schedule. You also need to get Mr. Mancini's signature.
