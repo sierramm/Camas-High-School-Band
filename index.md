@@ -10,16 +10,17 @@ If you play an instrument (or are willing to learn one) and enjoy making music, 
 
 
 #### What performances does the band play at?
-- **Concerts:** The band plays at a Holiday concert, Winter concert, Spring concert, and Year-end concert.
+- **Concerts:** The band plays at a Holiday concert, Winter concert, Spring concert, and Year-end concert. Jazz Bands also play at a separate Jazz Band concert. 
 - **Football games:** The band performs half-times shows on the field as well as pre- and post-game shows in the stands.
 - **Basketball and volleyball games:** During their respective seasons, the band plays pep music at home volleyball and basketball games.
 - **Parades:** The band marches in several parades during the holiday season and in the spring. 
-- **Disneyland/Disneyworld:** Every other year, the band goes on tour to either Disneyland or Disneyworld during spring break.
-- **Graduation:** Each year, the band plays for graduation (except, of course, the seniors who are graduationg).
+- **Disneyland/Disneyworld:** Every other year, the band goes on tour to either Disneyland or Disneyworld during spring break. (In 2019, the band will be going to Disneyworld)
+- **Graduation:** Each year, the band plays for graduation (except, of course, the seniors who are graduating).
+- **Musical:** Pit Orcherstra plays for the school's musical each year.
 
 
 #### What kind of time commitment does band require?
-During marching season, in addition to attendance at football/other sports games and parades, there are field show practices after school, band camp held for a week during the summer, and sectionals after school run by the section leaders for each instrument. Throughout the entire school year, although practice calendars or logs are not assigned, individual practice is often needed in order to learn and perform the songs well. 
+During marching season, in addition to attendance at football/other sports games and parades, there are field show practices after school, band camp held for a week during the summer, and sectionals after school run by the section leaders for each instrument. Although practice calendars or logs are not assigned, throughout the school year individual practice is often needed in order to learn and perform the songs well. 
 
 
 #### Is band better than choir?
